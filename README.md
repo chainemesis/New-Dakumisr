@@ -1,1 +1,1 @@
-# New-Dakumisr
+# I will pay stable crytos like USDC/USDT.
